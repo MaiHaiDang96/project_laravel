@@ -1,0 +1,1 @@
+Chào mừng bạn đã đăng kí thanh công tài khoản tại haidang.site, <a href="">Nhấn vào đây</a> để xác thực email của bạn.
